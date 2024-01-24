@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about music
 - 📫 How to reach me: polasaniashwithareddy@gmail.com
 - 😄 Pronouns: ashwi
-- ⚡ Fun fact: im water baby
+- ⚡ Fun fact: im water baby.
